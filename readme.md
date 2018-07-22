@@ -25,15 +25,22 @@
 
 ## Youtube Channels
 
-- [Pressure Luck](https://www.youtube.com/channel/UCWP5zYusIJqJCK27A0NlAKg)
+- [Amy & Jacky](https://www.youtube.com/channel/UC_CoMTkmck2TFXArC1BYeLg)
+- [Angela Lo InstantPotLife](https://www.youtube.com/channel/UCMo49lXEAQaDgLnGmJtDOCA)
+- [Busy Bees - Instant Pot](https://www.youtube.com/channel/UCyipqzlJ_dtC4CsWrBxKyfg)
 - [Flo Lum](https://www.youtube.com/user/flolum)
-- [Two Sleevers Urvashi](https://www.youtube.com/channel/UCh2s855nQILHVX7Lpqy1HVA)
-- [Instant Pot](https://www.youtube.com/user/TheInstantpot)
+- [Hip pressure cooking](https://www.youtube.com/user/hipcooking)
 - [Indigo Nili](https://www.youtube.com/user/nilihcg)
+- [Instant Pot](https://www.youtube.com/user/TheInstantpot)
+- [Instant Pot Love](https://www.youtube.com/channel/UCOFwZaxjIaSbKd_JObWNqkg)
 - [Instapottin' With Poonam](https://www.youtube.com/channel/UCsJp7aFzqkRFGV22_g3QZFw)
 - [Keith Tant](https://www.youtube.com/channel/UCmHhi8Dm9Ehl2akKDSNceVQ/feed)
-- [Busy Bees - Instant Pot](https://www.youtube.com/channel/UCyipqzlJ_dtC4CsWrBxKyfg)
-- [Instant Pot Love](https://www.youtube.com/channel/UCOFwZaxjIaSbKd_JObWNqkg)
+- [Multikocher - Instant Pot](https://www.youtube.com/channel/UCqeRjiZYlT7LX3jhuc-Cpzg/featured)
+- [Piping Pot Curry](https://www.youtube.com/channel/UC929bqkJli6q9GGha87rvig)
+- [Pressure Luck](https://www.youtube.com/channel/UCWP5zYusIJqJCK27A0NlAKg)
+- [Sandhyas Kitchen](https://www.youtube.com/channel/UCG3PYGfJrMsOquOzGWkjZYA/featured)
+- [Two Sleevers Urvashi](https://www.youtube.com/channel/UCh2s855nQILHVX7Lpqy1HVA)
+- [Traditional & Instant Pot Recipes by Aaichi Savali](https://www.youtube.com/channel/UCxdHoBcJv2VdC1UqEnub6ag)
 
 
 ## Accessories
