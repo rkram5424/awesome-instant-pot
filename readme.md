@@ -9,6 +9,7 @@
 - [Recipe Blogs](#recipe-blogs)
 - [Youtube Channels](#youtube-channels)
 - [Accessories](#accessories)
+- [Misc](#misc)
 
 
 ## Cookbooks
@@ -71,6 +72,10 @@
 - [Stackable Egg Steamer Rack Trivet](https://www.amazon.com/Aozita-Stackable-Steamer-Instant-Accessories/dp/B078YP92Y6/ref=sr_1_23?s=kitchen&ie=UTF8&qid=1532289226&sr=1-23&keywords=instant+pot+accessories)
 - [Mini Mitts](https://www.amazon.com/Genuine-Instant-Pot-Mini-Mitts/dp/B012D33BD4/ref=sr_1_25?s=kitchen&ie=UTF8&qid=1532289278&sr=1-25&keywords=instant+pot+accessories)
 
+
+## Misc
+
+- [InstantPot/InstantPotRecipes/PressureCooking Multireddit](https://www.reddit.com/r/instantpot+InstantPotRecipes+PressureCooking/)
 
 ## Contribute
 
