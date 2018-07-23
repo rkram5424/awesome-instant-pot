@@ -31,13 +31,15 @@
 
 ## Recipe Blogs
 
-- []()
-- []()
-- []()
-- []()
-- []()
-- []()
-- []()
+- [365 Days of Slow Cooking + Pressure Cooking](https://www.365daysofcrockpot.com/category/instant-pot/)
+- [Amy & Jacky](https://www.pressurecookrecipes.com/instant-pot-recipes/)
+- [Dad Cooks Dinner](https://www.dadcooksdinner.com/pressure-cooker-recipe-index/)
+- [IP Foodie](https://www.ipfoodie.com/)
+- [Instant Pot Eats](http://instantpoteats.com/)
+- [Paint the Kitchen Red](https://www.paintthekitchenred.com/)
+- [Pressure Luck](http://pressureluckcooking.com/recipes/)
+- [Serious Eats](https://www.seriouseats.com/recipes/topics/method/pressure-cooker)
+- [Twosleevers](https://twosleevers.com/recipe-index/?fwp_cooking_style=instant-potpressure-cooker)
 
 
 ## Youtube Channels
@@ -76,6 +78,9 @@
 ## Misc
 
 - [InstantPot/InstantPotRecipes/PressureCooking Multireddit](https://www.reddit.com/r/instantpot+InstantPotRecipes+PressureCooking/)
+- [Instant Pot Community Facebook group](https://www.facebook.com/groups/InstantPotCommunity/about/)
+- [Instant Pot Recipes Only Facebook group](https://www.facebook.com/groups/1213221555427266/?ref=br_rs)
+
 
 ## Contribute
 
