@@ -68,10 +68,10 @@
 - [Sealing Ring 2-Pack](https://www.amazon.com/Genuine-Instant-Pot-Sealing-Ring/dp/B01LFFN36Q/ref=sr_1_6?s=kitchen&ie=UTF8&qid=1532289226&sr=1-6&keywords=instant+pot+accessories)
 - [Silicone Lid](https://www.amazon.com/Genuine-Instant-Pot-Silicone-Quart/dp/B011HLNE1M/ref=sr_1_12?s=kitchen&ie=UTF8&qid=1532289226&sr=1-12&keywords=instant+pot+accessories)
 - [Springform Pan](https://www.amazon.com/Hiware-Non-stick-Springform-Cheesecake-Leakproof/dp/B01KHHFCKS/ref=sr_1_11?s=kitchen&ie=UTF8&qid=1532289226&sr=1-11&keywords=instant+pot+accessories)
+- [Stackable Egg Steamer Rack Trivet](https://www.amazon.com/Aozita-Stackable-Steamer-Instant-Accessories/dp/B078YP92Y6/ref=sr_1_23?s=kitchen&ie=UTF8&qid=1532289226&sr=1-23&keywords=instant+pot+accessories)
 - [Stackable Insert Pans](https://www.amazon.com/Original-Stack-Stackable-Insert-Sling/dp/B072N6N96Y/ref=sr_1_8?s=kitchen&ie=UTF8&qid=1532289226&sr=1-8&keywords=instant+pot+accessories)
 - [Stainless Steel Inner Cooking Pot](https://www.amazon.com/Genuine-Instant-Pot-Stainless-Cooking/dp/B008BKHGX0/ref=sr_1_5?s=kitchen&ie=UTF8&qid=1532289226&sr=1-5&keywords=instant+pot+accessories)
 - [Steamer Basket](https://www.amazon.com/Hatrigo-Accessories-available-InstaPot-Pressure/dp/B07899VVBZ/ref=sr_1_9?s=kitchen&ie=UTF8&qid=1532289226&sr=1-9&keywords=instant+pot+accessories)
-- [Stackable Egg Steamer Rack Trivet](https://www.amazon.com/Aozita-Stackable-Steamer-Instant-Accessories/dp/B078YP92Y6/ref=sr_1_23?s=kitchen&ie=UTF8&qid=1532289226&sr=1-23&keywords=instant+pot+accessories)
 - [Tempered Glass Lid](https://www.amazon.com/Genuine-Instant-Pot-Tempered-Glass/dp/B008FUJ2LK/ref=sr_1_7?s=kitchen&ie=UTF8&qid=1532289226&sr=1-7&keywords=instant+pot+accessories)
 
 
