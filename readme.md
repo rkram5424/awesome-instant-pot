@@ -77,6 +77,7 @@
 
 ## Misc
 
+- [Slow Cooker Conversion Guide](https://www.tasteofhome.com/article/how-to-convert-slow-cooker-recipes-for-instant-pot/)
 - [InstantPot/InstantPotRecipes/PressureCooking Multireddit](https://www.reddit.com/r/instantpot+InstantPotRecipes+PressureCooking/)
 - [Instant Pot Community Facebook group](https://www.facebook.com/groups/InstantPotCommunity/about/)
 - [Instant Pot Recipes Only Facebook group](https://www.facebook.com/groups/1213221555427266/?ref=br_rs)
