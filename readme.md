@@ -29,9 +29,10 @@
 - [Weight Watchers Instant Pot 2018 Freestyle Cookbook](https://www.amazon.com/Weight-Watchers-Instant-Freestyle-Cookbook/dp/1720765545/ref=sr_1_14?ie=UTF8&qid=1532288091&sr=8-14&keywords=instant+pot+cookbook)
 
 
-## Recipe Blogs
+## Recipe Blogs and Collections
 
 - [365 Days of Slow Cooking + Pressure Cooking](https://www.365daysofcrockpot.com/category/instant-pot/)
+- [AllRecipes](https://www.allrecipes.com/recipes/22882/everyday-cooking/instant-pot/)
 - [Amy & Jacky](https://www.pressurecookrecipes.com/instant-pot-recipes/)
 - [Dad Cooks Dinner](https://www.dadcooksdinner.com/pressure-cooker-recipe-index/)
 - [IP Foodie](https://www.ipfoodie.com/)
@@ -39,7 +40,9 @@
 - [Paint the Kitchen Red](https://www.paintthekitchenred.com/)
 - [Pressure Luck](http://pressureluckcooking.com/recipes/)
 - [Serious Eats](https://www.seriouseats.com/recipes/topics/method/pressure-cooker)
+- [SkinnyTaste](https://www.skinnytaste.com/pressure-cooker-recipes/)
 - [Twosleevers](https://twosleevers.com/recipe-index/?fwp_cooking_style=instant-potpressure-cooker)
+- [Weight Watchers](https://www.weightwatchers.com/us/blog/food/easy-instapot-recipes)
 
 
 ## Youtube Channels
